@@ -15,3 +15,5 @@ Jupiter and Venus glow steadily light in the night chill.
 
 Sometimes Mars glows red in the sky, passing though Orion and ever onwards.
 
+Saturn is sometimes visible if you know where to look.
+
